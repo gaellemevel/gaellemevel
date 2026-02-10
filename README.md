@@ -1,5 +1,5 @@
 ## Hi there 👋
-I'm an environmental researcher interested in 
+I'm an environmental researcher, pursuing my PhD studies @McGill University.
 
 🌊 Coastal and Marine Regions 
 
