@@ -1,5 +1,5 @@
 ## Hi there 👋
-I'm an environmental researcher, pursuing my PhD studies @McGill University.
+I'm an environmental researcher, pursuing my PhD studies @McGill University. Here are some of my favourite things:
 
 🌊 Coastal and Marine Regions 
 
